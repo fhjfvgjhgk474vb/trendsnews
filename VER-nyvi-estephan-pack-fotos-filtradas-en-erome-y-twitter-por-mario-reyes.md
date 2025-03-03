@@ -1,6 +1,11 @@
 En las últimas horas, Nyvi Estephan, una de las nuevas presidentas de la Kings League Brasil, se ha convertido en tendencia luego de varias de sus fotos íntimas fueran difundidas en redes sociales por el futbolista de Kings League, Mario Reyes, en pleno directo en la plataforma de Twitch.
 
-Mario Reyes popular futbolista y streamer compartió varias fotografías intimas de Nyvi Estephan, en el chat público de Poloteli, desatando una incontrolable polémica en redes como Twitter y Erome.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 La acción de Mario fue rápidamente censurada por los integrantes de directo y aunque al inicio causa bromas al respecto, terminó siendo baneado por un día en la plataforma de Twitter y terminó disculpándose con la presidenta mediante una declaración en su cuenta de X.
 
