@@ -1,6 +1,11 @@
 En una noche llena de emociones y sorpresas en los Premios Oscar 2025, Mikey Madison se consagró como la ganadora en la categoría de Mejor Actriz por su impresionante actuación en la película 'Anora'.
 
-A sus 25 años, la joven actriz dejó atrás a grandes competidoras como Demi Moore (The Substance), Fernanda Torres (I'm Still Here), Cynthia Erivo (Wicked) y Karla Sofía Gascón (Emilia Pérez). Sin duda, fue una contienda muy reñida, pero Madison logró destacar y llevarse la estatuilla dorada a casa.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 Este premio marca un hito importante en la carrera de Mikey Madison, quien ha sido aclamada por la crítica por su interpretación en Anora, una cinta que no solo ha conquistado al público, sino que también le ha traído grandes reconocimientos, incluyendo un BAFTA.
 
