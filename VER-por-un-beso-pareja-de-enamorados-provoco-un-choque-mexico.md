@@ -1,6 +1,11 @@
 Un insólito accidente de tránsito se volvió viral en redes sociales luego de que una pareja de enamorados protagonizara un choque en plena vía pública tras darse un beso.
 
-El curioso incidente, que ocurrió en Aguascalientes, México, ha generado todo tipo de reacciones entre los internautas.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 El suceso tuvo lugar en un semáforo en rojo, cuando una pareja que se encontraba dentro de un coche gris aprovechó la pausa del tráfico para compartir un beso.
 
